@@ -24,4 +24,4 @@ Run Chivas :
 Author
 ------
 
-Merk DoniSatria / [@DoniSatria](http://line.me/ti/p/~Doninoob)
+Me DoniSatria / [@DoniSatria](http://line.me/ti/p/~Doninoob)
